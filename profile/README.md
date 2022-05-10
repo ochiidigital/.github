@@ -1,4 +1,4 @@
-## Hi, Ochii Digital 👋
+## hi, ochii digital 👋
 
 <!--
 
